@@ -12,9 +12,9 @@
 Our mission is to give you freedom.
 我们的使命是给你自由. <cite>GOOD LUCKS!</cite></blockquote>
 </figure>
-<strong><span style="color: #ff0000;"><a style="color: #ff0000;" href="https://justmysocks1.net/members/aff.php?gid=1&amp;aff=5271&amp;language=chinese">官方网站直达-https://justmysocks1.net</a></span></strong>
+<strong><span style="color: #ff0000;"><a style="color: #ff0000;" href="https://justmysocks1.net/members/aff.php?gid=1&amp;aff=5271&amp;language=chinese">官方网站直达-https://justmysocks2.net</a></span></strong>
 
-<a title="" href="https://justmysocks1.net/members/aff.php?pid=2&amp;promocode=JMS9272283&amp;aff=5271&amp;language=chinese" target="_blank" rel="noopener noreferrer" data-original-title="">直达购买：一个月5.88美元/500G月流量/2.5G口带宽/GIA线路/限制5个设备</a>
+<a title="" href="https://justmysocks2.net/members/aff.php?pid=2&amp;promocode=JMS9272283&amp;aff=5271&amp;language=chinese" target="_blank" rel="noopener noreferrer" data-original-title="">直达购买：一个月5.88美元/500G月流量/2.5G口带宽/GIA线路/限制5个设备</a>
 
 
 ## ===VPS推荐===
