@@ -9,11 +9,11 @@
 Our mission is to give you freedom.
 我们的使命是给你自由. <cite>GOOD LUCKS!</cite></blockquote>
 </figure>
-<strong><span style="color: #ff0000;"><a style="color: #ff0000;" href="https://justmysocks2.net/members/aff.php?gid=1&amp;aff=5271&amp;language=chinese">官方网站直达-https://justmysocks2.net</a></span></strong>
+<strong><span style="color: #ff0000;"><a style="color: #ff0000;" href="https://justmysocks3.net/members/aff.php?gid=1&amp;aff=5271&amp;language=chinese">官方网站直达-https://justmysocks2.net</a></span></strong>
 
-<a title="" href="https://justmysocks2.net/members/aff.php?pid=2&amp;promocode=JMS9272283&amp;aff=5271&amp;language=chinese" target="_blank" rel="noopener noreferrer" data-original-title="">直达购买：一个月5.88美元/500G月流量/2.5G口带宽/GIA线路/限制5个设备</a>
+<a title="" href="https://justmysocks3.net/members/aff.php?pid=2&amp;promocode=JMS9272283&amp;aff=5271&amp;language=chinese" target="_blank" rel="noopener noreferrer" data-original-title="">直达购买：一个月5.88美元/500G月流量/2.5G口带宽/GIA线路/限制5个设备</a>
 
-<strong><span style="color: #ff0000;"><a style="color: #ff0000;" href="http://www.xiaojichang.xyz/go/githubforever/">永久中文点击直达链接-www.justmysocks.com</a></span></strong>
+<strong><span style="color: #ff0000;"><a style="color: #ff0000;" href="https://justmysocks3.net/members/aff.php?aff=5271">永久中文点击直达链接-www.justmysocks.com</a></span></strong>
 
 ## ===VPS推荐===
 [**Hostwinds**](https://www.hostwinds.com/7302.html) 是一家美国主机商，成立于 2010 年，国内站长使用较多的是 Hostwinds 美国 VPS 主机产品。由于 [Hostwinds](https://www.hostwinds.com/7302.html) 美国 VPS 主机采用的是 SSD 硬盘，而且所有方案都有全球 CDN 加速功能，因而也备受用户青睐。 如今 Hostwinds 主机商提供的产品方案也非常丰富，包括虚拟主机、云主机、VPS主机以及独立主机等。目前 [Hostwinds](https://www.hostwinds.com/7302.html) 主要有达拉斯、西雅图 2 个数据中心，其中西雅图数据中心在国内访问速度最快。现在 [Hostwinds](https://www.hostwinds.com/7302.html) 提供免费更换IP了，没错，就是免费，免费，随意更换，可以一键解决 IP 被墙的问题了。
